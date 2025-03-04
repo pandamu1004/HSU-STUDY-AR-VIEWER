@@ -1,4 +1,4 @@
-# HSU-STUDY-AR-VIEWER 시연영상&APK
+# HSU-STUDY-AR-VIEWER 시연영상
 
 https://drive.google.com/drive/folders/1XVwVXBTEk04sx23XF1O_n01D_SmEMUkj?usp=sharing
 
